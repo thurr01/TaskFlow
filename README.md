@@ -3,7 +3,7 @@
 **Group Members:**
 
 - Addi, Zhanica M.
-- Alumbulo, Jesse Martine P.
+- Alumbullo, Jesse Martine P.
 - Guarte, Alaine B.
 - Montero, Marlvince Arthur A.
 - Viadnes, Caesar Sean G.
